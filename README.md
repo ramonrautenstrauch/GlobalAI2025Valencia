@@ -18,3 +18,7 @@ El evento de Valencia lo monta [Global Communities: AI & Low Code](https://www.m
 - Daniel Córdoba Cárdenas
 - Eloi Baixeras
 - Guilliana Bullón Benvenutto
+
+# Contacto
+
+Cualquier duda a Toni Granell (tgranell@365easy.es) o hablando con cualquiera de los organizadores.
